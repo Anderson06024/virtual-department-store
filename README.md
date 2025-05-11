@@ -1,1 +1,0 @@
-# virtual-department-store
